@@ -123,4 +123,4 @@ Muni Sekhar Chinthala
 
 📬 Contact
 
-📧 munisekhar.chinthala@gmail.com 
+📧 muniroyaj@gmail.com 
